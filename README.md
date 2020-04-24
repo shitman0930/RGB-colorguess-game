@@ -1,1 +1,1 @@
-# colorgame-traditional-chinese-version-
+# colorgame-traditional-chinese-version
